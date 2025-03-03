@@ -1,1 +1,1 @@
-# Sekarang kita lagi belajar Konsep
+# Sekarang kita lagi belajar KPL hari ini yagesya
