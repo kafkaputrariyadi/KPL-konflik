@@ -1,1 +1,2 @@
-# Sekarang kita lagi belajar KPL hari ini yagesya
+# upin ipin makan oseng oseng dinasaurus 
+# boboiboy gelud jeng ultramen
